@@ -1,5 +1,5 @@
 # .github
 "Believe In Yourself"🕉🧘‍♂️🌟🌈☯🤝🎼🤙📶🤖❤🧡💛💚💙💜🦄⚡💪💋™
 
-htts://blufitech.com
+https://blufitech.com
 https://mrbarbiee.com
