@@ -9,8 +9,10 @@ Founder of Blu.Fi, Tech, Inc.
 ![Screenshot (30)](https://github.com/Blu-Fi-Tech-Inc/.github/assets/98633589/e30c25fa-d8d1-4713-87ea-edb2647d5311)
 https://blufitech.com
 
+
 ![Screenshot (28)](https://github.com/Blu-Fi-Tech-Inc/.github/assets/98633589/b0c5d030-e582-41a9-b546-60de6a255862)
 https://mrbarbiee.com
+
 
 Projects under development:
 
